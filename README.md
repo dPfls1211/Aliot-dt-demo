@@ -20,13 +20,6 @@
   <img src="https://github.com/user-attachments/assets/6eec357e-72ba-4686-a49c-d077d979aef4" width="45%"/>
 </p>
 
-![05165 PNG](https://github.com/user-attachments/assets/6eec357e-72ba-4686-a49c-d077d979aef4)
-![05166 PNG](https://github.com/user-attachments/assets/9e84a077-a4a9-4d9c-b705-ee1c9a876512)
-![05163 PNG](https://github.com/user-attachments/assets/26a2bf84-24b8-4a2b-9bb0-37beee458f14)
-![image](https://github.com/user-attachments/assets/7fe903ab-6f9a-441d-a0f7-8096e4c66678)
-![05167 PNG](https://github.com/user-attachments/assets/9e9a90a7-6768-4980-b583-1032242bfa19)
-
-
 
 ## 🖥 역할
 
